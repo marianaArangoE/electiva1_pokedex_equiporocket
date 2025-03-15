@@ -1,0 +1,1 @@
+# electiva1_pokedex_equiporocket
